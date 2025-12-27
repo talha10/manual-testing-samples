@@ -56,7 +56,7 @@ QA / SQA Engineer
 Manual & Automation Testing  
 
 📍 Pakistan  
-🔗 LinkedIn: https://linkedin.com/in/your-link-here
+🔗 LinkedIn: https://www.linkedin.com/in/talha-khan-khattak/ 
 
 ---
 
